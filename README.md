@@ -7,6 +7,5 @@
 - :disappointed_relieved: but first I need to learn GitHub and other stuff.
 
 - 📫 How to reach me: jeffreymoe71@gmail.com
-- 😄 Pronouns: he/him
 - ⚡ Fun fact: I like cooking and I love eating.
 
