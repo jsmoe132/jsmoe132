@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there, My Name is Jeffrey👋
 
 ---> :) I'm currently a student at the University of California, San Diego.
   
